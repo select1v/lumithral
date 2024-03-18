@@ -1,0 +1,4 @@
+Owner: Jared
+
+Backstory:
+Shade comes from a small mountain town, secluded from the rest of the land.  The town has “magic men”(monks)from a monastery who help protect the town and the area around it.  The town head, who was also a magic man, had a prophecy revealed to him in a vision.  Shade is not allowed to know the prophecy.  Trained since 6 years old in the ways of the sword and bow and the monastery’s ways.  The monastery secluded him from the rest of town and so he is very nervous and not good with women since he was surrounded by men for so long.  Has only left the town a few months ago, at most 6 months.
